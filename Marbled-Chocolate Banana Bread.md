@@ -5,15 +5,15 @@ Preheat oven to 350 degrees
 
 Ingredients
 -----------
-2 cups flour
-3/4 tsp baking soda
-1/2 tsp salt
-1 cup sugar
-1/4 cup butter, softened
-3 mashed, overripe bananas
-1/2 cup egg beaters
-1/3 cup plain low fat yogurt
-1/2 cup choc chips
+- 2 cups flour
+- 3/4 tsp baking soda
+- 1/2 tsp salt
+- 1 cup sugar
+- 1/4 cup butter, softened
+- 3 mashed, overripe bananas
+- 1/2 cup egg beaters
+- 1/3 cup plain low fat yogurt
+- 1/2 cup choc chips
 
 Directions
 ----------

@@ -3,21 +3,21 @@ Cincinnati Chili
 
 Ingredients
 -----------
-2 T oil
-2 1/2 lbs ground beef
-1 Qt cold water
-1 (6oz) can tomato paste
-2 lg onions, diced
-1 1/2 T vinegar
-1 tsp Worcestershire sauce
-1 clove garlic, minced
-2 T chili powder
-5 bay leaves
-2 tsp cayenne pepper
-2 tsp cinnamon 
-1 1/2 T cocoa
-1 tsp allspice
-salt & pepper
+- 2 T oil
+- 2 1/2 lbs ground beef
+- 1 Qt cold water
+- 1 (6oz) can tomato paste
+- 2 lg onions, diced
+- 1 1/2 T vinegar
+- 1 tsp Worcestershire sauce
+- 1 clove garlic, minced
+- 2 T chili powder
+- 5 bay leaves
+- 2 tsp cayenne pepper
+- 2 tsp cinnamon 
+- 1 1/2 T cocoa
+- 1 tsp allspice
+- salt & pepper
 
 Directions
 ----------
