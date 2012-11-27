@@ -19,7 +19,7 @@ notes:
 * pepper - fairly small amount
  
 1. In sauce pot, add tomatoes and one can of water.  I break the tomatoes to help them break down better.  I don't know if this is useful or not.
-2. Add basil, garlic, bay leaf, sugar, salt, pepper.
+2. Add basil, bay leaf, sugar, salt, pepper.
 3. Bring to boil and simmer
 4. In fry pan add olive oil, parsley and garlic.  saute until just before the garlic turns brown (maybe 5 minutes.).
 5. Add in paste and 1 can of paste water.  Stir while heat in on until all ingredients are mixed and mixture starts to boil.
